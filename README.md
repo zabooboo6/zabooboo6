@@ -1,3 +1,5 @@
 <div align="center">
-
-https://github.com/user-attachments/assets/285e5ade-495a-481c-9066-4c988d2f693d
+  <div>18 <img src="https://64.media.tumblr.com/d2840c688cad2d35cc2188c79389c9b0/4e7e4eab0ec97b7e-b1/s75x75_c1/79e0fd109572f42d0588164f6037cbf124a8c7c4.gifv" height="15px"> he/him prnfluid <img src="https://i.postimg.cc/hG2Vg52w/transmasculine-7-stripes-20-px.png" height="15px"><img src="https://i.postimg.cc/d0rsyFX5/genderfluid-5-stripes-20-px.png" width="15px"><img src="https://i.postimg.cc/rwvysshd/bisexual-3-stripes-20-px.png" width="15px"> <img src="https://pixelbank.neocities.org/decome/food/fries/70.gif" height="15px"> fictkin / whatever</div>
+<div><img src="https://64.media.tumblr.com/d1041b8be239d46ddd74db2b6a10ba20/4c8a28e44fe66017-c0/s1280x1920/3b0a86776650dc69e0317312c5c5ec60bbe538bf.pnj" width="356px"></div>
+<div><img src="https://pixelbank.neocities.org/decome/decorative/251.gif" width="10px"> <a href="https://rentry.co/moderator">rentry</a> <a href="https://msak.atabook.org">atabook</a> <a href="https://tetratto.com/@msak">tetratto</a> <a href="https://thatratisnotreal.tumblr.com/post/807146157704986624/d">art credit</a></div>
+<div>discord <img src="https://pixelbank.neocities.org/decome/decorative/68.gif" width="10px">spwnborn</div>
